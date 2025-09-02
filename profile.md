@@ -88,7 +88,7 @@ We practice CSR, Training community on good supply chain and Logistics managemen
 ## Contact
 
 - **Phone:** +234-704-157-8010
-- **Email:** fortnetnigeria@gmail.com
+- **Email:** info@fortnetng.org
 - **Website:** www.fortnetng.org
 - **Info Email:** info@fortnetng.org
 - **Address:** D25C Platinum Mega Plaza Opposite Mabushi Modern market, Jahi, Abuja
